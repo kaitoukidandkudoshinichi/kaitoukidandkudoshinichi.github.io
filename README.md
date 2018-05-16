@@ -1,0 +1,1 @@
+# kaitukidandkudoshinichi.github.io
